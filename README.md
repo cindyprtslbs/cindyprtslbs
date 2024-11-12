@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on project team
 - 📫 cindypermatasarilbs@gmail.com
 - 😄 Pronouns: redeemed
-- ⚡ Fun fact: i'm beauty
+- ⚡ Fun fact: money everything
 
 <!---
 cindyprtslbs/cindyprtslbs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
