@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @cindyprtslbs
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning coding
-- 💞️ I’m looking to collaborate on project team
+- 💞️ I’m looking to collaborate on project team 
 - 📫 cindypermatasarilbs@gmail.com
 - 😄 Pronouns: redeemed
 - ⚡ Fun fact: i'm a billionaire
