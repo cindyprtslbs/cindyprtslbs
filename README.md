@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on project team
 - 📫 cindypermatasarilbs@gmail.com
 - 😄 Pronouns: redeemed
-- ⚡ Fun fact: money everything
+- ⚡ Fun fact: i'm a billionaire
 
 
 # 💻 Tech Stack:
